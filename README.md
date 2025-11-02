@@ -4,7 +4,7 @@ My first repository
 *By Arron Justin R. Gutierrez*
 *BSIT 3-508*
 
-## I love playing online games, so here are some of my listed favorite games of all TIME !!!!!
+## I love playing online games, so here are some of my listed favorite games of all TIME !!!
 
 1. RED DEAD REDEMPTION 2
 

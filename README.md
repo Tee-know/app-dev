@@ -6,19 +6,19 @@ My first repository
 
 ## I love playing online games, so here are some of my listed favorite games of all TIME !!!
 
-1. RED DEAD REDEMPTION 2
+1. **RED DEAD REDEMPTION 2**
 
 here's why:
 
 **I love Red Dead Redemption 2 because of how deeply it immerses me into its breathtaking world, powerful storytelling, and emotional characters that make every moment unforgettable**
    
-2. Call of duty's 
+2. **Call of duty's** 
 
 here's why:
   
 **I love all Call of Duty games because the adrenaline-pumping action, competitive gameplay, and unforgettable stories keep me coming back match after match.**
    
-3. NBA 2k's
+3. **NBA 2k's**
 
 here's why:
  
